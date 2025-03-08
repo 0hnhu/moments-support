@@ -6,7 +6,7 @@ Track your relationship journey with Moments, a simple and beautiful app for cou
 
 If you're experiencing any issues with the app or have questions, please contact us:
 
-**Email:** your-email@example.com
+**Email:** collectorchansey@gmail.com
 
 ## FAQ
 
